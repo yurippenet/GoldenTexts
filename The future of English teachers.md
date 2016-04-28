@@ -7,3 +7,6 @@ Keywords when working on a project in english:
 4. Be careful of how big the topic is, if it is too big then some goups will take to much liberty to chose a topic the teacher didn’t foresee to exclude. 
 5. It is important to know what kind of presentation that are expected early on, so that every presentation the pupils make serve a purpose for the main topic. 
 6. There should some kind of obligated response to each group from the audience, so every participant are “at work” when there is a presentation.   
+
+
+	Written by an English teacher
